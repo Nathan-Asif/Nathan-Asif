@@ -1,4 +1,4 @@
-## Nathan Asif - Experienced Full Stack Developer | PHP, JS, Python, WordPress, Shopify
+## Nathan Asif - Full Stack & AI Engineer | Python, PHP, JS, Java, WordPress, Shopify
 
 ###
 
